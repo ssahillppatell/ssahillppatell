@@ -1,4 +1,4 @@
-### Hii, I am Pagal 👋
+### Hii 👋
 
 - 🔭 I’m currently working in a Startup
 - 🌱 I’m currently learning Cybersecurity
